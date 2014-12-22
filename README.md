@@ -35,11 +35,19 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A reporte of a discourse concerning supreme power in affaires of religion Manifesting that this powe
+
+1. THE SVMMARIE.
+
 #####Body#####
-A reporte of a discourse concerning supreme power in affaires of religion Manifesting that this powe
+
+1. TO HIS HONORABLE
+FRIEND
+SIR I. P. Knight.
+
 #####Back#####
-A reporte of a discourse concerning supreme power in affaires of religion Manifesting that this powe
+
+1. Errata.
+
 **Types of content**
 
   * There are 8 **verse** lines!
